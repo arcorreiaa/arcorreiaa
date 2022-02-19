@@ -26,4 +26,6 @@
 
 
 </div><br/>
-Apaixonado por tecnologia, games e motos.
+Passionate about technology, games and motorcycles.
+
+
